@@ -6,4 +6,7 @@
 
 👀 Looking for new opportunity to improve my skills
 
+My Portfolio
+https://shanekolkotoportfolio.netlify.app
+
 
